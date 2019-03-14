@@ -1,2 +1,0 @@
-# trekkinginnepal
-Trekking in nepal
