@@ -1,0 +1,13 @@
+<h1>How were the himalayas formed</h1>
+<p>225 million years agone (Ma) Asian country was an oversized island settled off the Australian coast and separated from Asia by the Tethys Ocean. The supercontinent continent began to interrupt up two hundred Ma and Asian country started a northward drift towards Asia. eighty Ma Asian country was vi,400 kilometer south of the Asian continent however moving towards it at a rate of between nine and sixteen cm p.a.. At this point Tethys Davy Jones's locker would are subducting northward to a lower place Asia and therefore the plate margin would have been a merging oceanic-continental one similar to the range of mountains nowadays.
+<a href="http://poonhill.org/index.php/2018/10/24/how-were-the-himalayas-formed/">how were the himalayas formed</a>
+As seen within the animation higher than not all of the Tethys Davy Jones's locker was utterly subducted; most of the thick sediments on the Indian margin of the ocean were scraped off and accreted onto the Eurasian continent in what's referred to as an increasing wedge (link to glossary). These scraped-off sediments are what currently kind the chain of mountains formation.
+
+From concerning 50-40 Ma the speed of northward drift of the Indian continental plate slowed to around 4-6 cm p.a.. This lag is understood to mark the start of the collision between the Eurasian and Indian continental plates, the closing of the previous Tethys Ocean, and therefore the initiation of chain of mountains uplift.
+
+(Note that within the higher than animation the continental plates are shown to collide at ten Ma; this could instead browse fifty Ma.)
+
+The Eurasian plate was partially crumpled and buckled up higher than the Indian plate however because of their low density/high buoyancy neither continental plate may be subducted. This caused the continental crust to thicken because of folding and faulting by compressional forces pushing up chain of mountains and therefore the Tibetan upland. The continental crust here is doubly the typical thickness at around seventy five kilometer. The thickening of the continental crust marked the tip of volcanic activity within the region as any stone moving upwards would solidify before it might reach the surface.
+
+The range are still rising by quite one cm p.a. as Asian country continues to maneuver northward into Asia, that explains the incidence of shallow focus earthquakes within the region nowadays. but the forces of weathering and erosion are lowering the range at concerning the identical rate. The range and Tibetan upland trend east-west and extend for two,900 km, reaching the most elevation of eight,848 metres (Mount mountain peak – the very best purpose on Earth).
+</p>
